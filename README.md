@@ -23,3 +23,6 @@ le aaye khakhi e jaano ke tohfe
 mohabbat ke baage adan mai hamesha 
 a change in me 
 e zahra ke dilbar
+
+## COPYRIGHT 
+sfdnpsmgsf;sm;sm;msf;m
