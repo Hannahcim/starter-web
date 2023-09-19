@@ -28,3 +28,4 @@ e zahra ke dilbar
 sfdnpsmgsf;sm;sm;msf;m
 
 ALL RIGHTS RESERVED
+## EMERGENCY
