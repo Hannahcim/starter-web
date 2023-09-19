@@ -11,5 +11,7 @@ This is a simple file
 
 ##HOW TO CONTRIBUTE
 
-
+this is to CONTRIBUTE
 ## HOT TO USE MERGEDIFF TOOL
+
+this is to use tools 
