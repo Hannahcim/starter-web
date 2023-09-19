@@ -27,4 +27,4 @@ e zahra ke dilbar
 ## COPYRIGHT 
 sfdnpsmgsf;sm;sm;msf;m
 
-PLs for fnpsgjpsdkpsdpsdm;sdm;sdk;skdf;m;sdkm;dmlsmlmdsflmsdf
+ALL RIGHTS RESERVED
