@@ -7,3 +7,9 @@ This repository is for showing how Git and GitHub work
 Sample website with plenty of files for demos
 
 ## DEPLOYMENT
+This is a simple file
+
+##HOW TO CONTRIBUTE
+
+
+## HOT TO USE MERGEDIFF TOOL
